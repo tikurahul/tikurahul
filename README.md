@@ -7,7 +7,6 @@
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: 
   - Can speak 6 languages (English, Hindi, Bengali, Tamil, Telugu, German).
-  - Working towards a scuba diving certification. 
   - Love photography, and a collector of cameras. 
 
 <!--
